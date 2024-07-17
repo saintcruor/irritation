@@ -11,6 +11,7 @@
 <p align="center">
 $${\color{red}luke  /  priest}$$
 he / it / hx, gbp fans int !
+    always near fnf area, docks, or CH  area.
     <details>
   <summary>DNI</summary>
 
