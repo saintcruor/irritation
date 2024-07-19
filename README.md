@@ -41,7 +41,7 @@ if i interact with u and u have a gbp skin, i 100% am silently asking to be frie
 - sw fans pls dont int, you guys are scary af, i iwc.
 
 
-  idrc if you read this, i block freely anyways
+  pls lmk if ur uncomfortable ! ill try to not do / mention said things  ^  _  ^
 
 </details>
 </p>
