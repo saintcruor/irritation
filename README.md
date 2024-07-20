@@ -12,6 +12,7 @@
 $${\color{red}luke  /  priest}$$
 he / it / hx, gbp fans int !
     always near fnf area, docks, or CH  area.
+    I hardly ever int first, my discord is vivetsar if u want to be moots.
     <details>
   <summary>DNI</summary>
 
