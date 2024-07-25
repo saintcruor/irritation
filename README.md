@@ -8,6 +8,8 @@
     <img src="https://files.catbox.moe/r3onyj.webp" width="700" />
 </p>
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u6qlgegpy65vvotxkzj2dl5dum&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31u6qlgegpy65vvotxkzj2dl5dum&redirect=true)
+idk how to code lmao
 <p align="center">
 $${\color{red}luke  /  priest}$$
 he / it / hx, gbp fans int !
