@@ -39,7 +39,7 @@ I need tone tags ty !
 I don't really censor words mostly but I will do some that I find important to censor in case of it being triggering, I as well don't need any censoring besides any religous mentions outside of games like FAITH:tut.
 I also only rely on my hyperfixations for conversation unless we are friends to some extent
 I make kys / kms jokes, i draw a line at s/h jokes.
-I'm also angelkin and fictionkin (Luke skywalker), please dont talk about either in 3rd person to me! 
+I'm also angelkin and fictionkin, please dni if u "kin for fun".
 
 pls lmk if ur uncomfortable ! ill try to not do / mention said things  ^  _  ^
 
