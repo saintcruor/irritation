@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/cqj55l.gif" /> $${\color{lightblue}luke  /  sasha}$$
+<img src="https://files.catbox.moe/cqj55l.gif" /> $${\color{lightblue}desmond  /  sasha}$$
 he / it / ae ㅤ𓏏𓏏ㅤinfo on starw.page
 <p align="center">
 Usually near $${\color{cyan}TMA / FNF  area}$$<img src="https://files.catbox.moe/1u0r0g.gif" /> sometimes by $${\color{cyan}docks}$$ on occasion.
