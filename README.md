@@ -10,11 +10,11 @@
 
 <p align="center">
 <img src="https://files.catbox.moe/cqj55l.gif" /> $${\color{lightblue}desmond  /  sasha}$$
-he / it / ae ㅤ𓏏𓏏ㅤinfo on starw.page
+he / it ㅤ𓏏𓏏ㅤinfo on sntry
 <p align="center">
 Usually near $${\color{cyan}TMA / FNF  area}$$<img src="https://files.catbox.moe/1u0r0g.gif" /> sometimes by $${\color{cyan}docks}$$ on occasion.
 <p align="center">
-⠀୨　Pls int if you're a fan of: Assassins Creed, Napoleonic Wars, or GBP
+⠀୨　Pls int if you're a fan of: Assassins Creed, Napoleonic Wars, The Thing or GBP
 <p align="center">
 I don't int first, <img src="https://files.catbox.moe/o5bx4q.gif" /> please $${\color{violet}whisper}$$ me or add me on $${\color{violet}discord}$$ ^ _ ^
 
@@ -39,7 +39,7 @@ I need tone tags ty !
 I don't really censor words mostly but I will do some that I find important to censor in case of it being triggering, I as well don't need any censoring besides any religous mentions outside of games like FAITH:tut.
 I also only rely on my hyperfixations for conversation unless we are friends to some extent
 I make kys / kms jokes, i draw a line at s/h jokes.
-I'm also angelkin and fictionkin, please dni if u "kin for fun".
+I'm otherkin, i am  not  comfortable  around  those  who  are  "kin  for  fun".
 
 pls lmk if ur uncomfortable ! ill try to not do / mention said things  ^  _  ^
 
