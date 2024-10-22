@@ -1,12 +1,10 @@
+
 <p align="center">
-    <img src="https://files.catbox.moe/h1czou.png" width="570" />
+    <img src="https://files.catbox.moe/45wyya.gif" width="500" />
 </p>
 <p align="center">
-    <img src="https://files.catbox.moe/0e2l08.gif" width="500" />
-</p>
-<p align="center">
-<img src="https://files.catbox.moe/wufkfw.gif" width="30" /> 　 $${\color{lightpink}desmond　/　sasha}$$
-　　⏖　　he / it ㅤ　<img src="https://files.catbox.moe/att0j7.png" width="30" /> <img src="https://files.catbox.moe/s8ngb8.png" width="30" />
+<img src="https://files.catbox.moe/wufkfw.gif" width="30" /> 　 $${\color{lightpink}desmond　/　alatir}$$
+　　⏖　　he / it ㅤ　
 <p align="center">
 I ' m　usually　by　docks ,　around　the　FNF　or　CH　area
 <p align="center">
@@ -19,11 +17,8 @@ share　common　interests .　I　do　not　guarantee　I　will
 talk　much　though .　Depends　how　I　feel .
     
 <p align="center">
-    <img src="https://files.catbox.moe/eiwrob.gif" /> 
-</p>
-<p align="center">
 boundaries wip.
 
 <p align="center">
-    <img src="https://files.catbox.moe/w3ef9h.png" width="570" />
+    <img src="https://files.catbox.moe/ofc56b.png" width="570" />
 </p>
