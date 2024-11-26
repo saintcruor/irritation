@@ -1,23 +1,21 @@
 
 <p align="center">
-    <img src="https://files.catbox.moe/45wyya.gif" width="500" />
+    <img src="https://files.catbox.moe/6pt6tw.gif" width="700" />
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/wufkfw.gif" width="30" /> 　 $${\color{lightpink}desmond　/　alatir}$$
-　　⏖　　he / it ㅤ　
+　　⏖　　he  /  shy  /  it　　　　minor
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[boundaries](https://sntry.cc/beaucoup)
 <p align="center">
-I ' m　usually　by　docks ,　around　the　FNF　or　CH　area
+Usually  in  the  same  spot,  sometimes  online,　usually　offline
 <p align="center">
-Please　interact　first ,　I　have　social　anxiety　as　well
+Please　interact　first ,　I　have　social　anxiety　but　i'd　like　to
 <p align="center">
-as　being　very　shy　to　people　I　just　met　unless　we
+meet　people　anyways .　I'm　trying　not　to　use　discord　much　anymore.
         <p align="center">
-share　common　interests .　I　do　not　guarantee　I　will
-            <p align="center">
-talk　much　though .　Depends　how　I　feel .
+I　dont　talk　a-lot　but　I　try　my　best !　^ _ ^
 
 <p align="center">
-    <img src="https://files.catbox.moe/ofc56b.png" width="570" />
+    <img src="https://files.catbox.moe/ujkq39.png" width="570" />
 </p>
