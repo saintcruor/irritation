@@ -3,7 +3,7 @@
     <img src="https://files.catbox.moe/6pt6tw.gif" width="700" />
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/wufkfw.gif" width="30" /> 　 $${\color{lightpink}desmond　/　alatir}$$
+<img src="https://files.catbox.moe/wufkfw.gif" width="30" /> 　 $${\color{lightpink}desmond　/　altair}$$
 　　⏖　　he  /  shy  /  it　　　　minor
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[boundaries](https://sntry.cc/beaucoup)
